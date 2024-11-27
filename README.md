@@ -1,2 +1,2 @@
-# jarkomsem3
-Tugas Jaringan Komputer 2024
+FARCHAN DEANO MUHAMMAD
+TRM A - 5323600012
